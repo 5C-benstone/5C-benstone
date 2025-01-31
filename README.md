@@ -12,6 +12,8 @@
 
 <p align=center> •─────⋅📄⋅─────•</p>
 
+<p align=center> ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖</p>
+
 
 <p align=center> <a href="https://ezraxp.straw.page/">𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚</a></p>
 
