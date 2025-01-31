@@ -19,6 +19,8 @@
 
 <p align=center> <a href="https://ult-rebel.carrd.co">𝙘𝙖𝙧𝙧𝙙</a></p>
 
+<p align=center> <a href="https://rentry.co/5C-benstone"></a>𝙧𝙚𝙣𝙩𝙧𝙮</p>
+
 
 <p align=center> " ᴛʜᴇʀᴇ ᴀʀᴇ ꜱᴏᴍᴇ ᴛʜɪɴɢꜱ ꜱᴄɪᴇɴᴄᴇ ᴄᴀɴ’ᴛ ᴇxᴘʟᴀɪɴ. ꜱᴏᴍᴇ ᴛʜɪɴɢꜱ ʏᴏᴜ ʜᴀᴠᴇ ᴛᴏ ɢᴏ ᴏɴ ꜰᴀɪᴛʜ. " </p>
 
